@@ -5,7 +5,7 @@
 
 - 📝 I regularly write articles on [https://sinanozdemir.com.tr/blog](https://sinanozdemir.com.tr/blog)
 
-- How to reach me: Mail on **info[@]sinanozdemir.com.tr**
+- 💬 How to reach me: Mail on **info[@]sinanozdemir.com.tr**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
